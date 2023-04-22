@@ -96,7 +96,7 @@ Please remember that all my works belong to me and ask me if you want to use som
 There's always a deal with me. I promise. :+1:
 
 You can ask me if I can do something for you. :smiley_cat: <br>
-Write me, go to my <a href="https://moonlighthiker.de/index.php/en/" >website</a> or send me a pigeon... <br>
+Write me, go to my <a href="https://moonlighthiker.com" >website</a> or send me a pigeon... <br>
 I'm always happy to hear some nice words.
 
 <b>Thanks again for your time.</b> :heart: <br>
